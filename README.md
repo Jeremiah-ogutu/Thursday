@@ -1,0 +1,1 @@
+juma SE thursday
